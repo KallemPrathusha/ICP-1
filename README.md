@@ -1,1 +1,2 @@
-"C:\Users\kalle\Videos\Captures\pythonProject – 1st program.py 2023-08-17 21-23-46.mp4"
+https://github.com/KallemPrathusha/ICP-1/assets/142553187/2b813f7c-1190-4964-a3d1-f4d6ddcab484
+
